@@ -4,6 +4,6 @@
 It is not raining outside, so there is really no chance of drowning
 
 # Drowning Quotes
-![Drowning quote](https://media.images.yourquote.in/post/720/0/0/32/204/xE5r2213.webp)
+![alt text](image-1.png)
 
 ![Drowning Anker](https://4.bp.blogspot.com/-CKjKcEjZL0Y/U2jAJ3KzGlI/AAAAAAAADkE/hegmTKyTurM/s1600/1524980_810671598946437_718159432_n.jpg)
